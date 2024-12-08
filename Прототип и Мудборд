@@ -1,0 +1,1 @@
+https://www.figma.com/design/TTZLyXMegJzsHtGvsBqsBr/Тихая-Гавань?node-id=0-1&node-type=canvas&t=uamNEVCZwJ5OneVY-0
